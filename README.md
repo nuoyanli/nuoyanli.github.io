@@ -1,2 +1,2 @@
-nuoyanli.github.io
+nuoyanli.cn
 
